@@ -68,5 +68,5 @@ PCA of samples
 
 
 
-Fallow https://www.youtube.com/@Bioinformatics_Made_Easy
+Follow like share and subscribe https://www.youtube.com/@Bioinformatics_Made_Easy
 
